@@ -1,2 +1,3 @@
 # JUST-MY-DUMP
 Subhang's Dump or Stash
+Read This if you wanna Know me more...
